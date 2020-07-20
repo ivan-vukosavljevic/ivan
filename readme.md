@@ -1,0 +1,2 @@
+lmklm
+nov tekst
